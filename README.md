@@ -1,4 +1,4 @@
 ## Hey 
-uhh first porejct
+uhh first project
 project 1
 hope79
